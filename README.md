@@ -26,21 +26,21 @@ _The bold no-good-at-love main character!_
 ## **Episode/Story Ideas**
 1. The Fumble of 23'
 _Dumbie goes to the arcade with Merpster and fumbles her ideal type!_
-   - Dumbie and Merpster decide to go to an arcade
-   - While playing a car racing game a stranger sits next to Dumbie and is clearly showing interest in her!
-   - Once DumDum finally notices the stranger, her nerves explodes and she runs away, fumbling her ideal type
+> - Dumbie and Merpster decide to go to an arcade
+> - While playing a car racing game a stranger sits next to Dumbie and is clearly showing interest in her!
+> - Once DumDum finally notices the stranger, her nerves explodes and she runs away, fumbling her ideal type
 <br>
 ![A picture of the stranger that was interested in DumDum who had a black shirt with the text I heart MC and wearing baggy denim dark blue pants and ear and eyebrow piercings adorned with cornrows](Untitled - September 26, 2023 08.37.54.png)
 <br>
 2. Fall of Fame
 _Merpster falls for a popular skater! Why do they seem so familliar...?_
-   - Merpster gets the chance to talk to a popular skater while at a random skate park
-   - He is Merpsters ideal type but shows no interest in Merpy at all
-   - Merpy shoots their shot and absolutely misses at his response
-   - Apparently Merpy turned him down in elementary and he was terribly heartbroken, having turned to skating to make them regret it, finding his own BF on the way
+> - Merpster gets the chance to talk to a popular skater while at a random skate park
+> - He is Merpsters ideal type but shows no interest in Merpy at all
+> - Merpy shoots their shot and absolutely misses at his response
+> - Apparently Merpy turned him down in elementary and he was terribly heartbroken, having turned to skating to make them regret it, finding his own BF on the way
 4. Brutal
 _Dumbie gets asked out to Homecoming! How does she respond?_
-   - Dumbie's hallway crush starts talking to her after hanging out together for a bit through mutual friends
-   - She's obviously giving Dumbie hints but DumDum thinks nothing of it, it's just girls being girls...right?
-   - She ends up confessing to DumDum over text but she misunderstands her as she unknowingly turns her down! This causes her to avoid DumDum at all costs out of embarassment
+> - Dumbie's hallway crush starts talking to her after hanging out together for a bit through mutual friends
+> - She's obviously giving Dumbie hints but DumDum thinks nothing of it, it's just girls being girls...right?
+> - She ends up confessing to DumDum over text but she misunderstands her as she unknowingly turns her down! This causes her to avoid DumDum at all costs out of embarassment
 
