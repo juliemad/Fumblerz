@@ -13,6 +13,12 @@ _The dense no-good-at-love main character!_
 - Hopeless Romantic
 - Never gets the hint until after!
 - 17
+
+
+
+
+
+
 <br>
 <br>
 ![A picture of Dumbie who has light orange wavy hair in pigtails with bangs and glasses wearing a green shirt and blue jorts petting a purple cat](Untitled - September 25, 2023 21.52.28.png)
