@@ -12,9 +12,9 @@ _The dense no-good-at-love main character!_
 - Hopeless Romantic
 - Never gets the hint until after!
 - 17
-  
+'<br>'
 ![Untitled - September 25, 2023 21.52.28](Untitled - September 25, 2023 21.52.28.png)
-
+'<br>'
 2. Merpster (aka Merpy)
 _The bold no-good-at-love main character!_
 - Hopeless Romantic
