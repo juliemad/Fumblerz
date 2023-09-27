@@ -1,4 +1,5 @@
 # Fumblerz!
+Created by Julienne Madjus
 ## What is Fumblerz?
 This is a mini series that will follow the main characters and their different silly stories on how they fumbled! Watch as these characters explore their new curiosity towards love through their own various experiences.
 
