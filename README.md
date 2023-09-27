@@ -12,6 +12,7 @@ _The dense no-good-at-love main character!_
 - Hopeless Romantic
 - Never gets the hint until after!
 - 17
+![Dumbie](Untitled - September 25, 2023 21.52.28.png)
 
 2. Merpster (aka Merpy)
 _The bold no-good-at-love main character!_
