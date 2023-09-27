@@ -32,8 +32,14 @@ body {
     line-height: 1.5;
     color: #743A36;
 }
-li {
+.main-content blockquote {
+    padding: 0 1rem;
+    margin-left: 0;
     color: #743A36;
+    border-left: 0.3rem solid #743A36;
+}
+li {
+    color: #491B1D;
 }
 .site-footer-credits {
     color: #491B1D;
