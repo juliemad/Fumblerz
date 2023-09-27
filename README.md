@@ -30,7 +30,7 @@ _Dumbie goes to the arcade with Merpster and fumbles her ideal type!_
    - While playing a car racing game a stranger sits next to Dumbie and is clearly showing interest in her!
    - Once DumDum finally notices the stranger, her nerves explodes and she runs away, fumbling her ideal type
 '<br>'
-
+![Untitled - September 26, 2023 08.37.54](Untitled - September 26, 2023 08.37.54.png)
 '<br>'
 2. Fall of Fame
 _Merpster falls for a popular skater! Why do they seem so familliar...?_
