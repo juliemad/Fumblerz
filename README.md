@@ -7,7 +7,7 @@ As this is a fairly new concept I decided to play around with, there isn't much 
 
 I orginally came up with this idea as to recreate funny storytimes that me and my friends have experienced and wanted to share as silly little inside jokes!
 ## **Characters**
-1. Dumbie (aka DumDum)
+### Dumbie (aka DumDum)
 _The dense no-good-at-love main character!_
 - Hopeless Romantic
 - Never gets the hint until after!
@@ -15,18 +15,23 @@ _The dense no-good-at-love main character!_
 '<br>'
 ![Untitled - September 25, 2023 21.52.28](Untitled - September 25, 2023 21.52.28.png)
 '<br>'
-2. Merpster (aka Merpy)
+### Merpster (aka Merpy)
 _The bold no-good-at-love main character!_
 - Hopeless Romantic
 - Only falls for people who don't want them...
 - 17
+'<br>'
 
+'<br>'
 ## **Episode/Story Ideas**
 1. The Fumble of 23'
 _Dumbie goes to the arcade with Merpster and fumbles her ideal type!_
    - Dumbie and Merpster decide to go to an arcade
    - While playing a car racing game a stranger sits next to Dumbie and is clearly showing interest in her!
    - Once DumDum finally notices the stranger, her nerves explodes and she runs away, fumbling her ideal type
+'<br>'
+
+'<br>'
 2. Fall of Fame
 _Merpster falls for a popular skater! Why do they seem so familliar...?_
    - Merpster gets the chance to talk to a popular skater while at a random skate park
