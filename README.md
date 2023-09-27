@@ -7,13 +7,13 @@ As this is a fairly new concept I decided to play around with, there isn't much 
 
 I orginally came up with this idea as to recreate funny storytimes that me and my friends have experienced and wanted to share as silly little inside jokes!
 ## **Characters**
-### **Dumbie (aka DumDum)**
+### Dumbie (aka DumDum)
 The dense no-good-at-love main character!
 - Hopeless Romantic
 - Never gets the hint until after!
 - 17
 
-### **Merpster (aka Merpy)**
+### Merpster (aka Merpy)
 The bold no-good-at-love main character!
 - Hopeless Romantic
 - Only falls for people who don't want them...
