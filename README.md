@@ -33,7 +33,7 @@ _Dumbie goes to the arcade with Merpster and fumbles her ideal type!_
 ![A picture of the stranger that was interested in DumDum who had a black shirt with the text I heart MC and wearing baggy denim dark blue pants and ear and eyebrow piercings adorned with cornrows](Untitled - September 26, 2023 08.37.54.png)
 '<br>'
 2. Fall of Fame :
-_Merpster falls for a popular skater! Why do they seem so familliar...?_
+_Merpster falls for a popular skater! Why do they seem so...familliar?_
 > - Merpster gets the chance to talk to a popular skater while at a random skate park
 > - He is Merpsters ideal type but shows no interest in Merpy at all
 > - Merpy shoots their shot and absolutely misses at his response
