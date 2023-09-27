@@ -17,7 +17,6 @@ _The dense no-good-at-love main character!_
 ![A picture of Dumbie who has light orange wavy hair in pigtails with bangs and glasses wearing a green shirt and blue jorts petting a purple cat](Untitled - September 25, 2023 21.52.28.png)
 <br>
 ### Merpster _(aka Merpy)_
-### Merpster _(aka Merpy)_
 _The bold no-good-at-love main character!_
 - Hopeless Romantic
 - Only falls for people who don't want them...
