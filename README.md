@@ -19,7 +19,7 @@ _The dense no-good-at-love main character!_
 
 
 
-<br>
+
 <br>
 ![A picture of Dumbie who has light orange wavy hair in pigtails with bangs and glasses wearing a green shirt and blue jorts petting a purple cat](Untitled - September 25, 2023 21.52.28.png)
 <br>
@@ -27,7 +27,7 @@ _The dense no-good-at-love main character!_
 _The bold no-good-at-love main character!_
 - Hopeless Romantic
 - Only falls for people who don't want them...
-- 17<br>
+- 17
 <br>
 ![A picture of Merpster who has short green curly fluffy hair, wearing a big black jacket and big light blue pants with a pink kitty backpack making a peace sign](Untitled - September 22, 2023 09.07.02.png)
 <br>
