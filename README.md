@@ -12,26 +12,26 @@ _The dense no-good-at-love main character!_
 - Hopeless Romantic
 - Never gets the hint until after!
 - 17
-'<br>'
+<br>
 ![A picture of Dumbie who has light orange wavy hair in pigtails with bangs and glasses wearing a green shirt and blue jorts petting a purple cat](Untitled - September 25, 2023 21.52.28.png)
-'<br>'
+<br>
 ### Merpster (aka Merpy)
 _The bold no-good-at-love main character!_
 - Hopeless Romantic
 - Only falls for people who don't want them...
 - 17
-'<br>'
+<br>
 ![A picture of Merpster who has short green curly fluffy hair, wearing a big black jacket and big light blue pants with a pink kitty backpack making a peace sign](Untitled - September 22, 2023 09.07.02.png)
-'<br>'
+<br>
 ## **Episode/Story Ideas**
 1. The Fumble of 23'
 _Dumbie goes to the arcade with Merpster and fumbles her ideal type!_
    - Dumbie and Merpster decide to go to an arcade
    - While playing a car racing game a stranger sits next to Dumbie and is clearly showing interest in her!
    - Once DumDum finally notices the stranger, her nerves explodes and she runs away, fumbling her ideal type
-'<br>'
+<br>
 ![A picture of the stranger that was interested in DumDum who had a black shirt with the text I heart MC and wearing baggy denim dark blue pants and ear and eyebrow piercings adorned with cornrows](Untitled - September 26, 2023 08.37.54.png)
-'<br>'
+<br>
 2. Fall of Fame
 _Merpster falls for a popular skater! Why do they seem so familliar...?_
    - Merpster gets the chance to talk to a popular skater while at a random skate park
