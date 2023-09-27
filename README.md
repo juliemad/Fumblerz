@@ -31,6 +31,12 @@ _The bold no-good-at-love main character!_
 <br>
 ![A picture of Merpster who has short green curly fluffy hair, wearing a big black jacket and big light blue pants with a pink kitty backpack making a peace sign](Untitled - September 22, 2023 09.07.02.png)
 <br>
+
+
+
+
+
+
 ## **Episode/Story Ideas**
 1. The Fumble of 23' :
 _Dumbie goes to the arcade with Merpster and fumbles her ideal type!_
