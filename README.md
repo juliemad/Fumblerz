@@ -38,7 +38,7 @@ _Merpster falls for a popular skater! Why do they seem so familliar...?_
 > - He is Merpsters ideal type but shows no interest in Merpy at all
 > - Merpy shoots their shot and absolutely misses at his response
 > - Apparently Merpy turned him down in elementary and he was terribly heartbroken, having turned to skating to make them regret it, finding his own BF on the way
-4. Brutal
+3. Brutal
 _Dumbie gets asked out to Homecoming! How does she respond?_
 > - Dumbie's hallway crush starts talking to her after hanging out together for a bit through mutual friends
 > - She's obviously giving Dumbie hints but DumDum thinks nothing of it, it's just girls being girls...right?
