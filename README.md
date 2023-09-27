@@ -1,5 +1,5 @@
 # **Fumblerz!**
-Created by Julienne Madjus
+Created by Julienne Madjus'<br>'
 Contact Me! '<a class="u-email" href="mailto:juliennemadjuss@gmail.com">juliennemadjuss@gmail.com</a>'
 ## **What is Fumblerz?**
 This is a mini series that will follow the main characters and their different silly stories on how they fumbled! Watch as these characters explore their new curiosity towards love through their own various experiences.
