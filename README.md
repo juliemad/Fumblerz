@@ -13,7 +13,7 @@ I orginally came up with this idea as to recreate funny storytimes that me and m
 _The dense no-good-at-love main character!_
 - Hopeless Romantic
 - Never gets the hint until after the fact!
-- 17
+- 17 (She/her)
 
 
 
@@ -33,7 +33,7 @@ _The dense no-good-at-love main character!_
 _The bold no-good-at-love main character!_
 - Hopeless Romantic
 - Only falls for people who don't want them...
-- 17
+- 17 (They/He)
 
 
 
@@ -54,7 +54,7 @@ _The bold no-good-at-love main character!_
 _Dumbie goes to the arcade with Merpster and fumbles her ideal type!_
 > - Dumbie and Merpster decide to go to an arcade
 > - While playing a car racing game a stranger sits next to Dumbie and is clearly showing interest in her!
-> - Once DumDum finally notices the stranger, her nerves explodes and she runs away, fumbling her ideal type<br>
+> - Once DumDum finally notices the stranger, her nerves explode and she runs away, fumbling her ideal type<br>
 <br>
 ![A picture of the stranger that was interested in DumDum who had a black shirt with the text I heart MC and wearing baggy denim dark blue pants and ear and eyebrow piercings adorned with cornrows](Untitled - September 26, 2023 08.37.54.png)
 <br>
