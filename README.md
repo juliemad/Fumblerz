@@ -13,7 +13,7 @@ I orginally came up with this idea as to recreate funny storytimes that me and m
 _The dense no-good-at-love main character!_
 - Hopeless Romantic
 - Never gets the hint until after the fact!
-- 17 (She/her)
+- 17 (She/Her)
 
 
 
