@@ -1,7 +1,7 @@
 # **Fumblerz!**
 Created by Julienne Madjus<br>
 Contact Me! _<a class="u-email" href="mailto:juliennemadjuss@gmail.com">juliennemadjuss@gmail.com</a>_ <br>
-Currently in progress... _<a href="https://www.tiktok.com/@eggzemah?_t=8g3ZnnvqBtW&_r=1">Other Art!</a>_ 
+_<a href="https://www.tiktok.com/@eggzemah?_t=8g3ZnnvqBtW&_r=1">Other Art!</a>_ Currently in progress...
 ## **What is Fumblerz?**
 This is a mini series that will follow the main characters and their different silly stories on how they fumbled! Watch as these characters explore their new curiosity towards love through their own various experiences.
 
