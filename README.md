@@ -35,6 +35,12 @@ _The bold no-good-at-love main character!_
 - Hopeless Romantic
 - Only falls for people who don't want them...
 - 17
+
+
+
+
+
+
 <br>
 ![A picture of Merpster who has short green curly fluffy hair, wearing a big black jacket and big light blue pants with a pink kitty backpack making a peace sign](Untitled - September 22, 2023 09.07.02.png)
 <br>
