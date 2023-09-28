@@ -57,6 +57,11 @@ _Dumbie goes to the arcade with Merpster and fumbles her ideal type!_
 > - While playing a car racing game a stranger sits next to Dumbie and is clearly showing interest in her!
 > - Once DumDum finally notices the stranger, her nerves explodes and she runs away, fumbling her ideal type
 <br>
+
+
+
+
+
 ![A picture of the stranger that was interested in DumDum who had a black shirt with the text I heart MC and wearing baggy denim dark blue pants and ear and eyebrow piercings adorned with cornrows](Untitled - September 26, 2023 08.37.54.png)
 <br>
 2. Fall of Fame :
