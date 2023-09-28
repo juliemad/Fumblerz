@@ -1,6 +1,7 @@
 # **Fumblerz!**
 Created by Julienne Madjus<br>
-Contact Me! _<a class="u-email" href="mailto:juliennemadjuss@gmail.com">juliennemadjuss@gmail.com</a>_
+Contact Me! _<a class="u-email" href="mailto:juliennemadjuss@gmail.com">juliennemadjuss@gmail.com</a>_ <br>
+Currently in progress... _<a href="https://www.tiktok.com/@eggzemah?_t=8g3ZnnvqBtW&_r=1">Other Art!</a>_ 
 ## **What is Fumblerz?**
 This is a mini series that will follow the main characters and their different silly stories on how they fumbled! Watch as these characters explore their new curiosity towards love through their own various experiences.
 
@@ -23,6 +24,12 @@ _The dense no-good-at-love main character!_
 <br>
 ![A picture of Dumbie who has light orange wavy hair in pigtails with bangs and glasses wearing a green shirt and blue jorts petting a purple cat](Untitled - September 25, 2023 21.52.28.png)
 <br>
+
+
+
+
+
+
 ### Merpster _(aka Merpy)_
 _The bold no-good-at-love main character!_
 - Hopeless Romantic
